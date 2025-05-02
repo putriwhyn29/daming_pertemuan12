@@ -1,0 +1,1 @@
+# daming_pertemuan12
